@@ -1,0 +1,1 @@
+# Ashampoo-UnInstaller-Latest-Patch
